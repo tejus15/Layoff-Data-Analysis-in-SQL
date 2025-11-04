@@ -43,6 +43,6 @@ For questions or further information, please contact:
 
 Tejus Sanjay Sharma
 
-Email: tejussanjay.sharma@utdallas.edu
+Email: tejus98sharma@gmail.com
 
-LinkedIn: Tejus Sharma
+LinkedIn: https://www.linkedin.com/in/tejus-sharma/
